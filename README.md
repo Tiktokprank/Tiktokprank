@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Tiktokprank
-- tik tok prank coin 👇
+- tik tok page prank coin 👇
  https://t.me/tiktokcoinsa
